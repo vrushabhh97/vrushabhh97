@@ -6,7 +6,7 @@
 
 - 📫 How to reach me: **vdeogirikar@scu.edu**
 
-- ⚡ Fun fact: I'm a bike lover! 🏍️ I love mechanical keyboards! ⌨️
+- ⚡ Fun fact: I'm a biker! 🏍️ I love mechanical keyboards! ⌨️
 
 ### Connect with me:
 <p>
